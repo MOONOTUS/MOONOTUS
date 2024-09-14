@@ -1,5 +1,5 @@
 ## MOONOTUS
-### MOONOTUStudio
+---
 ``` Per Aspera Ad Astra. ```
 
 - 🔭 I’m currently working on Virtual Singer(Based on neural networks), Rhythm Game(Both 2D&3D), Application and Computer Graphics.
