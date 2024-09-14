@@ -9,4 +9,4 @@
 - 💬 Ask me about anything if you want. I'm not sure if I'm able to return you a satisfying answer though.
 - 📫 How to reach me: sand e-mail to moonotus@foxmail.com and I'll reply if I can.
 - 😄 Pronouns: MOONOTUS / MN
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Coding is actually fun but actually boring, isn't it?
