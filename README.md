@@ -11,4 +11,4 @@ I'm a student from China, an I'm working hard to finally reach my dream.
 - 😄 Pronouns: MOONOTUS / MN
 - ⚡ Fun fact: Coding is actually fun but actually boring, isn't it?
 
-  $$ MOONOTUS $$
+  $$ MOONOTUS 2024/9/14 Nice To Meet You $$
